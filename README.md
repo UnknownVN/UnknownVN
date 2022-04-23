@@ -6,5 +6,5 @@
 - let me know if you need something
 enjoy!
 <!---
-UnknownVN/UnknownVN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+UnknownVN/UnknownVN is a ✨ special ✨ repository because his `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
