@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UnknownVN
-- 👀 I’m interested in sketching project designs :)
+- 👀 I’m interested in sketching/creating project designs :)
 - 🌱 I’m currently learning how to make projects
 - 💞️ I’m looking to collaborate with users that can help and create many projects with me
 - my phone email is:2026vsharma@k12.mo.us
